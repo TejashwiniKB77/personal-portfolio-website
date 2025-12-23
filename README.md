@@ -1,1 +1,1 @@
-this is a my profile where we can get my information ,and u will know my strength and confidence 
+this is a my profile where we can get my information ,and u will know my strength and confidence  and even u will came to know in detail information about my self what ever I done during the Engineer and what ever skills I have and my habits everything u will get know this is my personal polio
